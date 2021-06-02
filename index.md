@@ -35,3 +35,15 @@ Further reading: [Christoph Luxenberg](https://de.wikipedia.org/wiki/Christoph_L
 ### 2021-05-17
 
 [Warum ist die Schweiz so reich?](https://youtu.be/zMwuMlIP1sQ) Overview over the entire history of modern Switzerland.
+
+Swiss GDP (BIP):
+
+* 19% production (high technology machines, pharmaceuticals, and chemicals) (historically grown from clothes production)
+* 15% gold trade, natural resources trade (because of tax evasion from multis)
+* 10% finance, capital (historically grown from the railway industry)
+* 3% tourism (mountains)
+
+Immigration of refugees of the mind
+
+Elend der frühen Globalisierung und der Arbeiterzustände des frühen 19. Jh. führten zur Nostalgie. Die Trachten wurden da erstmals entwickelt.
+“Export von Armut”! Die Armen wurden weggeschafft in Zeiten von wirtsch. Tiefe. Zuletzt in dem 1970ern.
