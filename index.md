@@ -9,3 +9,23 @@ ARTE documentation "Dick, dicker, fettes Geld \| Doku Reupload \| ARTE" on YouTu
 ### 2021-06-01
 
 [The word ontology from philosophy is also used in information science.](https://en.wikipedia.org/wiki/Ontology_(information_science))
+
+### 2021-05-24
+
+Trinitarianism should not be seen as the main branch of Christianity, but instead as one of many. It was not there from the beginning. Islam can be seen as the attempt to reunify the religions of the scripture. In the beginning, Islam counted Jews and antitrinitarian Christians as Muslims (= believers) which must not be converted.
+
+Further reading: [Karl-Heinz_Ohlig](https://de.wikipedia.org/wiki/Karl-Heinz_Ohlig)
+
+### 2021-05-22
+
+What we call today Judaism and Christianity was probably developed 500 BC. It’s based on the scripture (called the Hebrew Bible or the Torah) which explains the world of the Iron Age.
+
+Based on this, from the first century AD onwards, two new religions formed. One is Christianity which was started by Paul of Tarsus (in today’s Turkey). The question was about how people could convert to Christianity and they decided that they didn’t need to follow the rules of the Bible (e.g. circumcisions and abstain of pork) and could be Christians anyway. They started writing this down which is today called the New Testament. Over the centuries, more and more questions of morality were decided. The other is Rabbinic Judaism. It developed under the influence of Christianity and the teachings of the rabbis started to be codified as well over the years. It consolidated when the Jews were expelled from Judaea.
+
+Islam was probably developed from a messianic Christian sect that was going back to the basics. That means back to very strict monotheism (Christianity had watered it down) and saying the Muhammad is Jesus. Over the next two centuries, Islam consolidated to codify the Early Middle Ages life (as opposed to the late Iron Age life). It codified the welfare state. The religion started to define itself actually in Eastern Iran where it syncretized with Buddhism. It took in the absence of free will, it took in the cleaning ritual, and it took in the pilgrimage.
+
+Further reading: [Christoph Luxenberg](https://de.wikipedia.org/wiki/Christoph_Luxenberg)
+
+### 2021-05-17
+
+[Warum ist die Schweiz so reich?](https://youtu.be/zMwuMlIP1sQ) Overview over the entire history of modern Switzerland.
