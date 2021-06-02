@@ -16,6 +16,10 @@ The [Sennenhund](https://en.wikipedia.org/wiki/Swiss_mountain_dog) will show you
 
 Each dog is bred for a purpose and has a history. This one finds travelers in the snow and saves them.
 
+### 2021-05-25
+
+[RAKUGO～beans～](https://youtu.be/YBeRUDn1eTI)
+
 ### 2021-05-24
 
 Trinitarianism should not be seen as the main branch of Christianity, but instead as one of many. It was not there from the beginning. Islam can be seen as the attempt to reunify the religions of the scripture. In the beginning, Islam counted Jews and antitrinitarian Christians as Muslims (= believers) which must not be converted.
