@@ -10,6 +10,12 @@ ARTE documentation "Dick, dicker, fettes Geld \| Doku Reupload \| ARTE" on YouTu
 
 [The word ontology from philosophy is also used in information science.](https://en.wikipedia.org/wiki/Ontology_(information_science))
 
+### 2021-05-27
+
+The [Sennenhund](https://en.wikipedia.org/wiki/Swiss_mountain_dog) will show you the way when you travel on foot to a mountain pass through the snow. He will scent you and bark at you. It's not a wolf, it's a black dog that stands out against the white snow. He will kneel and stretch to show deference and that you can trust him. Then he will motivate you to climb the mountain pass.
+
+Each dog is bred for a purpose and has a history. This one finds travelers in the snow and saves them.
+
 ### 2021-05-24
 
 Trinitarianism should not be seen as the main branch of Christianity, but instead as one of many. It was not there from the beginning. Islam can be seen as the attempt to reunify the religions of the scripture. In the beginning, Islam counted Jews and antitrinitarian Christians as Muslims (= believers) which must not be converted.
