@@ -14,7 +14,7 @@ ARTE documentation "Dick, dicker, fettes Geld \| Doku Reupload \| ARTE" on YouTu
 
 Trinitarianism should not be seen as the main branch of Christianity, but instead as one of many. It was not there from the beginning. Islam can be seen as the attempt to reunify the religions of the scripture. In the beginning, Islam counted Jews and antitrinitarian Christians as Muslims (= believers) which must not be converted.
 
-Further reading: [Karl-Heinz_Ohlig](https://de.wikipedia.org/wiki/Karl-Heinz_Ohlig)
+Further reading: [Karl-Heinz Ohlig](https://de.wikipedia.org/wiki/Karl-Heinz_Ohlig)
 
 ### 2021-05-22
 
