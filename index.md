@@ -1,6 +1,6 @@
 ### 2021-06-02
 
-ARTE documentation "Dick, dicker, fettes Geld | Doku Reupload | ARTE" on YouTube. There I saw ["Death Recipe" by Erica](https://www.youtube.com/watch?v=Xe69WNbNS0g). [There are more linked here.](https://www.wnyc.org/story/poets-give-voice-to-the-toll-of-type-2-diabetes/).
+ARTE documentation "Dick, dicker, fettes Geld | Doku Reupload | ARTE" on YouTube. There I saw ["Death Recipe" by Erica](https://www.youtube.com/watch?v=Xe69WNbNS0g). [There are more linked here](https://www.wnyc.org/story/poets-give-voice-to-the-toll-of-type-2-diabetes/).
 
 [Who is Michael Pollan?](https://www.google.com/search?q=michael+pollan) He is quoted in on of the other videos.
 
