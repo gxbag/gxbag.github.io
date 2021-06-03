@@ -1,3 +1,7 @@
+### 2021-06-03
+
+[sushi](https://www.youtube.com/watch?v=0b75cl4-qRE)
+
 ### 2021-06-02
 
 ARTE documentation "Dick, dicker, fettes Geld \| Doku Reupload \| ARTE" on YouTube. There I saw ["Death Recipe" by Erica](https://www.youtube.com/watch?v=Xe69WNbNS0g). [There are more linked here](https://www.wnyc.org/story/poets-give-voice-to-the-toll-of-type-2-diabetes/).
