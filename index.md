@@ -61,7 +61,7 @@ Further reading: [Christoph Luxenberg](https://de.wikipedia.org/wiki/Christoph_L
 Swiss GDP (BIP):
 
 * 19% production (high technology machines, pharmaceuticals, and chemicals) (historically grown from clothes production)
-* 15% gold trade, natural resources trade (because of tax evasion from multis)
+* 15% gold trade, natural resources trade (because of tax evasion from multinationals)
 * 10% finance, capital (historically grown from the railway industry)
 * 3% tourism (mountains)
 
