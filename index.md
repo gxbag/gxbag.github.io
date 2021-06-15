@@ -1,3 +1,17 @@
+### 2021-06-15
+
+https://www.republik.ch/2021/06/15/wie-ein-60-jahre-altes-missverstaendnis-covid-noch-gefaehrlicher-machte
+
+https://www.wired.com/story/the-teeny-tiny-scientific-screwup-that-helped-covid-kill/
+
+The main infection path of upper respiratory diseases is through aerosols. The medical literature says it’s through hands that are touching the mouth and the nose but this is wrong. It was shown in the 1940s that viruses can spread through aerosols and that aerosols are particles under 100 μm. Research was done in tuberculosis. Tuberculosis is caused by bacteria that must infect the deep inside parts of the lung. For that it needs an aerosol size of 5 μm. Other diseases can do with aerosols of 5-100 μm.
+
+That means: clean the air. Clean it with UV, HEPA filters, and airing the room.
+
+This was just accepted by the Western medical canon and the WHO.
+
+It remains to be seen if this will lead to an increased focus on air pollution.
+
 ### 2021-06-03
 
 [sushi](https://www.youtube.com/watch?v=0b75cl4-qRE)
